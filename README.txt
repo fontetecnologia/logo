@@ -1,5 +1,3 @@
-# Fonte Tecnologia Logo
-
 Nós da Fonte Tecnologia adoramos colaborar e participar de projetos de terceiros. E sabemos como é chato quando não temos imagens de boa qualidade para fazer associação ou citação destes projetos. Por este motivo estamos compartilhando com vocês nosso logo.
 
 Se quiser ajuda com qualquer uma das medias não inclusas aqui, por favor mande um e-mail para contato@fontetecnlogia.com.br e nos falamos por lá.
